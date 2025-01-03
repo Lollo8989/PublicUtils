@@ -1,1 +1,10 @@
 # PublicUtils
+
+C2TD-X56D-BAC9-JSEU-GA3N (smart security)
+3BB-CFG-2A4
+
+DRK4-X7XN-5HU5-C2RW-NMAD (smart security)
+3BB-CFN-DJA
+
+31/12/2024
+SNP7-XWB3-2SC8-MX55-JDHU (eis)
